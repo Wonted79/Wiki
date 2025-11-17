@@ -8,3 +8,6 @@ https://brunch.co.kr/@ywkim36/146
 
 랭체인 이해하기:
 https://brunch.co.kr/@ywkim36/147
+
+랭체인 실습 :
+https://www.youtube.com/@chowooick/videos
